@@ -1,7 +1,7 @@
 ## Hi there 👋 I'm Karry327
-## THEN I NEVER TO TRY TO DO LIKE THIS
-## TO BE HONEST, IT'S FUNNY
-## I WILL TRY MY BEST TO LEARN IT.
+## THEN I NEVER TO TRY TO DO LIKE THIS.🌱
+## TO BE HONEST, IT'S FUNNY.🔭
+## I WILL TRY MY BEST TO LEARN IT.💬
 
 <!--
 **Karry327/Karry327** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
